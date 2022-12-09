@@ -1,5 +1,3 @@
-call me punz or luke
+call me punz or luke, he him
 
-he him
-
-rentry has everything you need to know
+rentry has everything you need to know. i hate drunz and it's shippers
